@@ -52,11 +52,19 @@
 
 # 𝘋𝘕𝘐 𝘭𝘪𝘴𝘵:
 
-◇.* Homophoes, Racist, Bodyshamer
+◇.* Homophoes
+
+◇.* Racist
+
+◇.* Bodyshamer
 
 ◇.* Disrespectful toward people's boundaries
 
 --------------------------------------------------------
+
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/62c6a650-1fd4-4b16-8ba9-39cdc1331d4d" />
+
+-------------------------------------------------------
 
 # 𝘈𝘯𝘥 𝘵𝘩𝘢𝘵'𝘴 𝘢𝘭𝘭!
 
