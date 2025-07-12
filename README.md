@@ -20,9 +20,11 @@
 
 ◇.* You can call me Kohi/Deaf or whatever nickname you have for me.
 
-◇.* ENFP
+◇.* My mbti: ENFP
 
 ◇.* I love sleeping and drawing ⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱
+
+◇.* I'm really bad at English and using my words. So if I say something confusing, please tell me so we can it out! ᕙ⁠(⁠＠⁠°⁠▽⁠°⁠＠⁠)⁠ᕗ
 
 ◇.* I'm a multiple fandoms person!
 
@@ -40,7 +42,7 @@
 
 ◇.* I might be very slow to respond because I usually/always offtab/afk, so if you want to talk/int with me please w2i!
 
-◇.* I love cuddling so feel free to C+H! Even when I'm sitting with my friends or having DNI/DNIUF status
+◇.* I love cuddling so feel free to C+H! Even when I'm sitting with my friends or having DNI/DNIUF/DNIUCF/DNIUID status
 
 ◇.* I spent my time and effort to do my skins/cosplay so please do not copy/take inspire of them!
 
@@ -52,7 +54,9 @@
 
 # 𝘋𝘕𝘐 𝘭𝘪𝘴𝘵:
 
-◇.* Homophoes
+◇.* Homophobic
+
+◇.* Sexism
 
 ◇.* Racist
 
